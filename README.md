@@ -1,5 +1,7 @@
 # 💫 About Me:
-                                                       Jiya Gupta<br>                           Data Scientist+ Business Analyst+ AI/ML enthusiast<br>                                            +Vibe Coder + Anchor/ Speaker<br><br><br>🤞I'm love working on AI/ML and data science projects.<br>🪻Started vibe coding as well.<br>💻I am looking to collaborate on Kaggle competitions.<br>📕I like to write and read novels.<br>📑Currently I'm working on a research paper.<br>📄Reach me on jiyaguptapg_ds23@its.edu.in<br>🧪Know about my experiences- linkedin.com/in/jiya-gupta1<br><br><br><br>
+                                                            Jiya Gupta
+                            Data Scientist+ Business Analyst+ AI/ML enthusiast +Vibe Coder + Anchor/ Speaker
+🤞I'm love working on AI/ML and data science projects.<br>🪻Started vibe coding as well.<br>💻I am looking to collaborate on Kaggle competitions.<br>📕I like to write and read novels.<br>📑Currently I'm working on a research paper.<br>📄Reach me on jiyaguptapg_ds23@its.edu.in<br>🧪Know about my experiences- linkedin.com/in/jiya-gupta1
 
 
 ## 🌐 Socials:
